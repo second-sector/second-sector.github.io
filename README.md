@@ -1,1 +1,0 @@
-# second-sector.github.io
